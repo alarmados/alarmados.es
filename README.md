@@ -5,22 +5,21 @@ Consigue GRATIS presupuestos de **alarmas para casa**, hogar y negocio de las me
 ¡También puedes seguirnos por las redes!
 
 * [About.me](https://about.me/alarmados/)
-* Blogspot
-* Delicious
-* Diigo
-* Disqus
-* Evernote
-* Facebook
-* GitHub
-* Google Drive
-* Google Plus
-* Gravatar
-* Instapaper
-* Medium
-* OneNote
-* Pocket
-* Scoop.it
-* Tumblr
-* Twitter
-* Wordpress.com
-* YouTube
+* [Blogspot](http://alarmados.blogspot.com.es/)
+* [Delicious](http://del.icio.us/alarmados)
+* [Diigo](https://www.diigo.com/user/alarmados)
+* [Disqus](http://alarmados.disqus.com)
+* [Evernote](https://www.evernote.com/pub/hola659/alarmados.es)
+* [Facebook](https://www.facebook.com/alarmados/)
+* [Google Drive](https://drive.google.com/folderview?id=0B1ol2miTpc_tUVlxblFYTUEwZE0&usp=sharing)
+* [Google Plus](https://plus.google.com/+AlarmadosEs/)
+* [Gravatar](https://es.gravatar.com/alarmados)
+* [Instapaper](https://www.instapaper.com/p/alarmados)
+* [Medium](https://medium.com/@alarmados)
+* [OneNote](https://1drv.ms/o/s!AgEi6aZNlmmPgutHt_0HMzv2YTP6IA)
+* [Pocket](https://getpocket.com/@alarmados)
+* [Scoop.it](http://www.scoop.it/u/alarmados/)
+* [Tumblr](http://alarmados.tumblr.com/)
+* [Twitter](https://twitter.com/_alarmados)
+* [Wordpress.com](https://alarmados.wordpress.com/)
+* [YouTube](http://www.youtube.com/c/AlarmadosEs)
