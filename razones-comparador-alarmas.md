@@ -1,4 +1,4 @@
-
+# [Razones para usar un comparador de alarmas](https://www.alarmados.es/razones-comparador-alarmas/)
 
 Siempre antes de comprar un producto de importancia y transcendencia en tu vida cotidiana, y más si hablamos de un sistema de seguridad, lo que hay es que analizar lo bueno de este producto y la gama de precios que existe en el mercado. Esto está muy bien sobre el papel, pero luego la vida real es muy diferente, ya que las muchas actividades diarias no te dejan hacer todo el recorrido o búsqueda que precisas para encontrar el mejor producto a nivel calidad precio.
 Por suerte existe un [comparador de alarmas](https://www.alarmados.es) como forma innovadora de hacer una revisión del mercado en tan solo unos segundos.
