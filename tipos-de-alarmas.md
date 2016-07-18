@@ -48,3 +48,5 @@ Con un funcionamiento similar a las **alarmas de incendios**, son un complemento
 Como vemos, hay multitud de tipos de alarmas y complementos que podemos agregar a nuestro sistema para hacerlo más seguro, no sólo a los robos, sino a otros incidentes.
 
 Si quieres conocer más sobre qué puedes hacer para proteger tu casa, no olvides pasarte por [nuestra guía de alarmas para casa](https://www.alarmados.es/alarmas-para-casa/).
+
+La entrada [Tipos de alarmas](https://www.alarmados.es/tipos-de-alarmas/) aparece primero en [alarmados.es](https://www.alarmados.es).
